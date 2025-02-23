@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Abhijit394
+- 👋 Hi, I’m Abhijit
 - 👀 I’m interested in Data Analytics .
 - 🌱 I’m currently learning python and javascript for responsive websites.
 - 📫 How to reach me , My no 9556424815 and Email abhijitmaharana394@gmail.com
